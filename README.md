@@ -1,2 +1,2 @@
-ID: longliveisrael2@letsboost.net
-Pw: KillAllPalestinian2)akwebguide.com
+Email: Yuna.akwedguide@internet.ru
+Password: Fromyuchan2)akwedguide.com
